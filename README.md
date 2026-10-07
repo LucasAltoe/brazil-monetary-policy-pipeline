@@ -1,0 +1,1 @@
+## Como o banco central usou os juros (Selic) para combater a inflação (IPCA) entre 2015 e 2024
